@@ -1,1 +1,2 @@
-#  nako yeu bhava start nahi kel ajun
+#  ye bho tu pn ye baghun ghe kahi ahhe ka 
+
