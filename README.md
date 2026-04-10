@@ -1,3 +1,3 @@
-#  JAVA CORE ...
+#  JAVA CORE ..
 
 
